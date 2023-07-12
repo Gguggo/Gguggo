@@ -1,5 +1,5 @@
 - 👋 Hi, I’m GULNAZ
-- 👀 I’m interested in fitness and everything related to crypto and WEB3.
+- 👀 I’m interested in fitness, 3D VIZ and everything related to crypto and WEB3.
 - 🌱 I’m currently learning testnets and WEB3
 - 💞️ I’m looking to collaborate on various issues in the field WEB3
 - 📫 How to reach me TWITTER
